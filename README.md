@@ -1,2 +1,2 @@
 # HwsoY9
-Readme
+Dilip Sajith, also known by his alias HesoY in gaming and online communities, is a forward-thinking enthusiast with a deep passion for technology. His hobbies include building and piloting drones, highlighting his ingenuity and technical prowess. Dilip, or HesoY, thrives on exploring advancements in technology, constantly seeking to expand his knowledge and skills. Whether it's through his hands-on approach or his creative presence in digital spaces, he is an innovator who stands out both in reality and the virtual world.
